@@ -1,1 +1,0 @@
-# aji24ap.github.io
